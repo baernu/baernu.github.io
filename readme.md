@@ -1,5 +1,3 @@
-google-site-verification: google5498aa9f090b913b.html
-
 
 # Messerli
 
